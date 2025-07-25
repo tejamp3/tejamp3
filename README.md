@@ -1,6 +1,6 @@
 ## Hi there 👋
 "To deny our own impulses is to deny the very thing that makes us human"
-<img src="https://pin.it/226gAg1Et"/> 
+<img src="https://pin.it/4v4qQnVDd"/> 
 <!--
 **tejamp3/tejamp3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
